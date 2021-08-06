@@ -4,9 +4,7 @@
 - 💞️ I’m looking to collaborate on any web project to learn and contribute to open source
 - 📫 How to reach me 
 - Twitter <a href="https://twitter.com/MasterOluwakeji">@MasterOluwakeji</a>
-
 - Instagram <a href="https://instagram.com/masteroluwakeji">@masteroluwakeji</a>
-- 
 - LinkedIn <a href="https://ng.linkedin.com/in/oluwakeji-onabajo-2a9b67111">Oluwakeji Onabajo</a>
 
 - 🙈 Pronoun: He/Him
